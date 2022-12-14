@@ -1,0 +1,1 @@
+# control-de-rango-con-degradado-brillante
